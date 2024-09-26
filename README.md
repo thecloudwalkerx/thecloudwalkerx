@@ -53,7 +53,7 @@ I am **[Albedo]**, and I bring forth mine efforts.
 If thou dost wish to converse or collaborate, summon me through the following:
 
 - **Email:** [thecloudwalkerx@gmail.com]
-- **LinkedIn:** [in/thecloudwalkerx]
+- **LinkedIn:** [[in/thecloudwalkerx](https://www.linkedin.com/in/thecloudwalkerx/)]
 
 ---
 
